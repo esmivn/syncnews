@@ -685,7 +685,7 @@
 
 磁力链接 magnet:?xt=urn:btih:bbbf31fadc0c043db0f919bfb9814fee44879599
 
-下载BT种子 [10月31日维权动态.mp4](https://torrentsshare.s3.amazonaws.com/10%E6%9C%8831%E6%97%A5%E7%BB%B4%E6%9D%83%E5%8A%A8%E6%80%81.mp4.torrent)
+下载BT种子 [10月31日维权动态.mp4](magnet:?xt=urn:btih:b0527602fc1b000dae4653e7035f48f88083743c)
 
 磁力链接 magnet:?xt=urn:btih:b0527602fc1b000dae4653e7035f48f88083743c
 
