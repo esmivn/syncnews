@@ -39,7 +39,7 @@
 
 在线观看：[【重播728】蓬佩奧與澳大利亞外長佩恩及雙方國防部長聯合新聞發布會（同聲翻譯）新唐人電視台.mp4](http://111.250.225.73:80/da59a53a73f4bada7a710d8b39656b887ca2de21)
 
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/da59a53a73f4bada7a710d8b39656b887ca2de21.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:da59a53a73f4bada7a710d8b39656b887ca2de21
+[网必通稳定高速看视频](#最最推荐️网必通播放软件自动更新视频边下边看全自动下载视频) ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/da59a53a73f4bada7a710d8b39656b887ca2de21.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:da59a53a73f4bada7a710d8b39656b887ca2de21
 
 在线观看：[【環球直擊】港特首反對率逾七成新西蘭暫停香港引渡協議美國聲援必須停止迫害法輪功（7月28日完整版2）.mp4](http://36.228.240.14:80/c31bea6e7daedb765f3dafcc1963f91e2f004324)
 
